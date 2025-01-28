@@ -1,1 +1,1 @@
-Internship ship
+Internship projects.
